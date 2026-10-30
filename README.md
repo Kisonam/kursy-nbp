@@ -1,0 +1,1 @@
+# Bezserwerowy-potok-danych-kursy-walut-NBP
